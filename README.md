@@ -1,4 +1,4 @@
-# Hi 👋, I'm Maxsudov Nurdavlet
+# Hi 👋, I'm Maxsudov Nurdawlet
 
 🎓 I study at IT Center  
 💻 I am learning programming  
